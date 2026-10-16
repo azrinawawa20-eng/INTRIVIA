@@ -10,3 +10,6 @@ Seru bangetttt wow new experience yang seru
 
 ## Kesan Pesan Cluster 6 Sejauh Ini 
 Kak iqbal dan kak rama baik banget, temennya juga seru 
+
+## Harapan Kuliah 
+Menjadi zawa yang lebih baik dan belajar lebih banyak lagi di teknik informatika ini
